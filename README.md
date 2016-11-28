@@ -1,5 +1,4 @@
 # Presentation Francais
-Une Discussion sur mon article "Splendeurs et miseres: images de prostitution. Exposition courageuse, attirante, mais feministe?
 
 <a href="http://www.pointsdaccroche.com/marginales/splendeurs-miseres-images-de-prostitution-1850-1910-exposition-courageuse-attirante-feministe/
-" target="_blank"><img src="http://imgur.com/a/o8UnJ"  /></a>
+" target="_blank"><img src="https://s21.postimg.org/i6kjja693/Screenshot_from_2016_11_28_13_48_48.png"  /></a>
